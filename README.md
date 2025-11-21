@@ -1,2 +1,2 @@
 qandaydir login page 
-i dont know kakie eto project
+i dont know how  project it is 
